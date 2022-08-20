@@ -1,1 +1,1 @@
-visible to all
+Lumira Ventures invests in transformative biopharmaceutical, medical device and digital health companies located in North America. We are engaged partners who support the management teams of companies we invest in to build products that have the potential to allow people to lead fundamentally healthier, longer and more productive lives.
